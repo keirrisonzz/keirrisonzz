@@ -11,3 +11,5 @@
    -  Keirrison_zz
       
 ![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)                                                                   ![](https://media.tenor.com/s5H-epeo0ewAAAAi/jus-mugen-majin-vegeta.gif)
+
+![](https://media.tenor.com/--AQwe1rA8EAAAAi/batman-pixel-art.gif) ![](https://media.tenor.com/usR36FKXKpcAAAAi/superman-pose.gif)
