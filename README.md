@@ -10,6 +10,7 @@
    -  keirrison.proenca@escola.pr.gov.br
    -  Keirrison_zz
       
-![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)                                                                   ![](https://media.tenor.com/s5H-epeo0ewAAAAi/jus-mugen-majin-vegeta.gif)
+
 
 ![](https://media.tenor.com/c3LZMXbt3W4AAAAi/menft.gif) 
+![](https://media.tenor.com/w1ThhGE3il8AAAAi/goku-db.gif)    ![](https://media.tenor.com/s5H-epeo0ewAAAAi/jus-mugen-majin-vegeta.gif)
